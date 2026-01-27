@@ -1,11 +1,11 @@
 
 <div align="center">
 
-<h1 align="center">𓆩⟡𓆪 HoaxACuve 𓆩⟡𓆪</h1>
+<h1 align="center">• ○ ♥ HoaxACube ♥ ○ •</h1>
   
 
   
-**𓆩⟡𓆪`Technoid(Developer/Gamer/Creator)`𓆩⟡𓆪**
+**𓆩♥𓆪`(A Striving Web Developer #what is cybersec???# )`𓆩♥𓆪**
 
 <div align="center">
 
